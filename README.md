@@ -5,7 +5,7 @@
   <div>
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://grssey.carrd.co">read me :3</a> ~ <a href="https://softgreasy.atabook.org">atabook</a>
   </div>
-ㅤoh, arthur..
+
 
   ↟𖠰
 
