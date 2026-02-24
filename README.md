@@ -9,3 +9,7 @@
 <a href="https://pronouns.cc/@kisswoofi">prnouns</a>
 
 silly doodle drawn by me (๑>؂•̀๑)
+
+<img 
+  width="100" src="![image](https://github.com/user-attachments/assets/b8e025dc-ff2f-482f-b233-14ff62a0581a"/>
+
