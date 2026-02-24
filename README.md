@@ -8,6 +8,7 @@
   </div>
 <a href="https://pronouns.cc/@kisswoofi">prnouns</a> . <a href="https://softgreasy.straw.page/">strawpage</a>
 
+
 silly doodle drawn by me (๑>؂•̀๑)
 
 <img 
